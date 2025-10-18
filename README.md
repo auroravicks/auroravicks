@@ -1,5 +1,5 @@
 # 💫 About Me:
-Part time enthusiast and dev, full time slacker<br>
+Still learning, building<br>
 
 
 ## 🌐 Socials:
