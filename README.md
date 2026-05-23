@@ -1,5 +1,5 @@
 # 💫 About Me:
-Still learning, building<br>
+Breaking, building<br>
 
 
 ## 🌐 Socials:
